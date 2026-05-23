@@ -15,7 +15,7 @@
 
 
 
-𝐌𝐨𝐬𝐭𝐥𝐲 𝐰𝐢𝐭𝐡 𝐦𝐲 𝐃𝐨𝐥𝟗𝐡𝐢𝐧 @[Pink Lemonade Duo](https://github.com/USERNAME/pink-lemonade-duo) ! 
+𝐌𝐨𝐬𝐭𝐥𝐲 𝐰𝐢𝐭𝐡 𝐦𝐲 𝐃𝐨𝐥𝟗𝐡𝐢𝐧 [@Pink-lemonadeduo](https://github.com/Pink-lemonadeduo)
 </h3>
 
 <h3 style="font-family: 'Trebuchet MS', sans-serif;">

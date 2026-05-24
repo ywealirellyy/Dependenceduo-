@@ -2,7 +2,7 @@
 
 <div align="center">
 
-<img src="https://files.catbox.moe/1xably.jpeg" width="300">
+<img src="https://files.catbox.moe/1xably.jpeg" width="400">
 
 </div>
 <div align="center">
@@ -49,7 +49,7 @@ mcyt fann
 <div align="center">
 
 <a href="https://8link.cc/6m3Bmm" target="_blank">
-  <img src="https://files.catbox.moe/3xwmkf.gif" width="350">
+  <img src="https://files.catbox.moe/3xwmkf.gif" width="90">
 </a>
 
 <br>

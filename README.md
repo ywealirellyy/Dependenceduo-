@@ -15,7 +15,7 @@
 
 
 
-𝐌𝐨𝐬𝐭𝐥𝐲 𝐰𝐢𝐭𝐡 𝐦𝐲 𝐃𝐨𝐥𝟗𝐡𝐢𝐧 ₍ᐢ. ̫ .ᐢ₎ [@Pink-lemonadeduo](https://github.com/Pink-lemonadeduo)  [@wwaannyyooiiss](https://github.com/wwaannyyooiiss)         
+𝐌𝐨𝐬𝐭𝐥𝐲 𝐰𝐢𝐭𝐡 𝐦𝐲 𝐃𝐨𝐥𝟗𝐡𝐢𝐧 ₍ᐢ. ̫ .ᐢ₎ [@Pink-lemonadeduo](https://github.com/Pink-lemonadeduo)  [@wwaannyyooiiss](https://github.com/wwaannyyooiiss) 𝐚𝐧𝐝 𝐦𝐲 𝐩𝐮𝐟𝐟𝐞𝐫𝐟𝐢𝐬𝐡 𝐟𝐫𝐢𝐞𝐧𝐝 [@nelumbace](https://github.com/nelumbace)        
 </h3>
 
 <h3 style="font-family: 'Trebuchet MS', sans-serif;">

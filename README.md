@@ -48,13 +48,8 @@ mcyt fann
 
 <div align="center">
 
-<a href="https://8link.cc/6m3Bmm" target="_blank">
-  <img src="https://files.catbox.moe/3xwmkf.gif" width="90">
-</a>
+ sorry for just adding random picture .
 
-<br>
-
-click the image ♫
 
 
 </div>
